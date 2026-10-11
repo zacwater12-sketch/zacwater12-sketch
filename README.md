@@ -22,6 +22,14 @@ The current prototype includes recording, in-desk playback, effects and a drum s
 
 **Follow the journey from creative sketch to working studio.**
 
+## Inside the studio
+
+<p align="center">
+<a href="https://x.com/zac_water757/status/2105787018873831824/photo/1"><img src="https://pbs.twimg.com/media/HTlCHlQaAAAFNzi?format=jpg&name=900x900" alt="Herm standing beside the recording desk — original character artwork" width="360"></a>
+</p>
+
+<p align="center"><strong>Meet Herm at the desk.</strong><br>A closer look at the character and the warm studio world.<br><a href="https://x.com/zac_water757/status/2105787018873831824/photo/1">View the original artwork</a> · <a href="https://x.com/zac_water757/media?filter=photo">Browse the stills collection</a></p>
+
 ## A little more to explore
 
 | Moving images | Photography | Sculpture |

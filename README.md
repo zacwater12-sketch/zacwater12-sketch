@@ -43,7 +43,7 @@ The current prototype includes recording, in-desk playback, effects and a drum s
 | --- | --- |
 | **X — artwork & updates** | [@zac_water757](https://x.com/zac_water757) |
 | **LittlEMorEaRT website** | Coming soon — portfolio and selected work |
-| **Another creative space** | Link to be added |
+| **Instagram — artwork & updates** | [@littlemoreart1](https://www.instagram.com/littlemoreart1/) |
 
 ## Let's create something
 
